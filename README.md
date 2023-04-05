@@ -1,1 +1,0 @@
-# reajuste_salarial
